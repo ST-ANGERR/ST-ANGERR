@@ -14,4 +14,4 @@
   | ${\color{red}DNI/BLACKLIST}$ <details><summary> </summary> **DARK/PROSHIPPERS**, people who are weird about shrimpo hes my favorite pls dont be weird, a03/c.ai addicts go touch grass, paraphiles i dont care if ur 'trying to get better' usual dni <h6> side note im in no way comparing these things some are obviously worse than others but they all make me uncomfortabe which is why theyre in my dni. and im very attached to shrimpo if you depict him in a way i dont like im blocking you |
 | -------- |
 
-<img src="https://file.garden/ar3ZTaQyJvnIk4_N/tumblr_085ff2dfe7cfd14c97fdbf7075975250_3c677fd0_400-ezgif.com-gif-maker.gif" />
+<img height="200" src="https://file.garden/ar3ZTaQyJvnIk4_N/tumblr_085ff2dfe7cfd14c97fdbf7075975250_3c677fd0_400-ezgif.com-gif-maker.gif" />
