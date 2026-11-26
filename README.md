@@ -10,3 +10,6 @@
 | -------- |      
 
 <img height="300" src="https://file.garden/ar3ZTaQyJvnIk4_N/Untitled1437_20261125235959.png" />
+
+  | ${\color{red}DNI/BLACKLIST}$ <details><summary> </summary> **DARK/PROSHIPPERS**, people who are weird about shrimpo hes my favorite pls dont be weird, a03/c.ai addicts go touch grass, paraphiles i dont care if ur 'trying to get better' usual dni <h6> side note im in no way comparing these things some are obviously worse than others but they all make me uncomfortabe which is why theyre in my dni. and im very attached to shrimpo if you depict him in a way i dont like im blocking you |
+| -------- |
